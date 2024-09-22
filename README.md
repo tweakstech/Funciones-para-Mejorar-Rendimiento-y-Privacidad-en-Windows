@@ -1,0 +1,1 @@
+# Funciones-para-Mejorar-Rendimiento-y-Privacidad-en-Windows
